@@ -1,0 +1,2 @@
+# gastos-mensais
+GASTOS MENSAIS, MEUS GASTOS MENSAIS, SÓ MEUS OK
